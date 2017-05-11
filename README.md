@@ -1,0 +1,1 @@
+# Social-Memory-in-Ghana
